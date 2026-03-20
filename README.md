@@ -18,7 +18,7 @@ Czech Republic
 
 Contact:
 
-polaxsr@gmail.com
+yasumi.support@gmail.com
 
 ---
 
